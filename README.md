@@ -1,0 +1,1 @@
+# HNK25CNTT6_Python_Session24_mindmap
